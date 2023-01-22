@@ -1,3 +1,4 @@
 # methods-to-go
+Fun to boring suicide tier list (will come in handy later)
 
-![image](https://user-images.githubusercontent.com/74945202/213730657-469c79d5-fc16-4d73-9d20-c9053194f97a.png)
+![image](https://user-images.githubusercontent.com/71426002/213905775-f59aa58f-c862-4533-a419-b5603bc3938c.png)
